@@ -1,3 +1,4 @@
 ### Hi there 👋
 
-![image info](https://avatars.githubusercontent.com/u/46666195?v=4)
+![.](https://files.catbox.moe/6q4bac.gif)
+[carmen winstead](https://solo.to/nigell12)
