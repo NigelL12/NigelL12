@@ -1,3 +1,19 @@
-### [Hi there 👋](https://nigell12.github.io)
+### hello
+> a
 
-![.](https://files.catbox.moe/6q4bac.gif)
+```
+.            ,
+           .:/
+.      ,,///;,   ,;/
+  .   o:::::::;;///
+     >::::::::;;\\\
+       ''\\\\\'" ';\
+          ';\
+```
+
+> [!IMPORTANT]
+> <p align=center>Damn is 😂🎉</p>
+
+> [!CAUTION]
+> [🐱](https://github.com/nl1z) • [🌐](https://nl12.nekoweb.org) • [🔗](https://solo.to/nigell12)
+> <p align=right>s</p>
